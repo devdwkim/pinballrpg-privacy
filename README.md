@@ -1,4 +1,4 @@
-Dokkaebi Games Privacy Policy Updated on September 1, 2016 We, Dokkaebi Games, regards your information significant and release this Privacy Policy to inform you what information we collect and how we use it to personalize and continually improve you experience. Our Privacy Policy sets out how we collect, use and disclose "personal information" and other "non-personal information" we have gathered about you. This policy will let you know:
+Dokkaebi Games Privacy Policy Updated on April 27, 2022 We, Dokkaebi Games, regards your information significant and release this Privacy Policy to inform you what information we collect and how we use it to personalize and continually improve you experience. Our Privacy Policy sets out how we collect, use and disclose "personal information" and other "non-personal information" we have gathered about you. This policy will let you know:
 
 What information is collected from you;
 How your information is used;
